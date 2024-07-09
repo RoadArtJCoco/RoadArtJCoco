@@ -2,7 +2,7 @@
 - 👀 I’m interested in bringing fine art, meditation & holistic care to Cardano.
 - 🌱 I’m currently learning the ways of the DRep
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me https://discord.gg/zYwgjaFJ
+- 📫 How to reach me https://discord.gg/GutKhmNgZF
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
